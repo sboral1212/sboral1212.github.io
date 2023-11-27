@@ -1,4 +1,4 @@
-International Workshop on Mathematics of Sea Ice and Ice Sheets  
+**International Workshop on Mathematics of Sea Ice and Ice Sheets  **
                       (MOSSI) - 2023
 
 
